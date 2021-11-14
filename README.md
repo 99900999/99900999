@@ -35,7 +35,7 @@
 </p>
 
 <p align="center">
-<a href='https://saweria.co/99900999'><b>BUY ME A COFFEE ☕️</b></a>
+<a href='https://ko-fi.com/imtrt'><b>BUY ME A COFFEE ☕️</b></a>
 </p>
 
 <p align="center">
